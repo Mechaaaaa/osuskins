@@ -1,4 +1,5 @@
-skins are ordered by when i generally used them
+skins are ordered by when i generally used them if 
+one of the links are dead dm me on discord Maxwell##9752 i try not to clear my s-ul files too often
 
 [vaxei mecha edit](https://maxwell.s-ul.eu/LTnE5Bl3)
 
