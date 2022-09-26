@@ -10,7 +10,7 @@ skins are ordered by when i generally used them
 ![screenshot2082](https://user-images.githubusercontent.com/114369231/192192242-c810c3d8-7baa-449c-b12a-f284c6e48313.jpg)
 
 
-(chitanda eru)[https://cdn.discordapp.com/attachments/803390861886357515/995867504981311518/chitanda_eru.osk]
+[chitanda eru](https://cdn.discordapp.com/attachments/803390861886357515/995867504981311518/chitanda_eru.osk)
 
 ![screenshot2088](https://user-images.githubusercontent.com/114369231/192194931-3f4f2389-ae6e-4e8c-8cec-43ac5845338e.jpg)
 
