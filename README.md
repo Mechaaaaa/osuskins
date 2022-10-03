@@ -3,7 +3,7 @@ skins are ordered by when i generally used them
  if one of the links are dead dm me on discord Maxwell##9752 i try not to clear my s-ul files too often
  
 [maliszewski edit](https://maxwell.s-ul.eu/CE5Xv7fq)
-(original credit to [this guy](https://www.youtube.com/watch?v=xVlRTaowLIM)
+(original credit to [this guy](https://www.youtube.com/watch?v=xVlRTaowLIM))
 
 ![screenshot2107](https://user-images.githubusercontent.com/114369231/193535295-62e96ed5-d933-4a48-ba85-94c43cccdd9e.jpg)
 
