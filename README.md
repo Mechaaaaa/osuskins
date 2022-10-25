@@ -1,6 +1,6 @@
 skins are ordered by when i generally used them
 
- if one of the links are dead dm me on discord Maxwell##9752 i try not to clear my s-ul files too often
+ if one of the links are dead dm me on discord Maxwell#9752 i try not to clear my s-ul files too often
  
 [maliszewski edit](https://maxwell.s-ul.eu/CE5Xv7fq)
 (original credit to [this guy](https://www.youtube.com/watch?v=xVlRTaowLIM))
