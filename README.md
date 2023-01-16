@@ -11,6 +11,9 @@ skins are ordered by when i generally used them
 [vaxei edit](https://maxwell.s-ul.eu/LTnE5Bl3)
 
 ![screenshot2080](https://user-images.githubusercontent.com/114369231/192191851-294dddcc-bf48-4591-b2ab-4f3b83adb69a.jpg)
+changed combo colors
+Combo1: 255, 255, 255
+Combo2: 74, 134, 255
 
 
 [tekkito edit](https://maxwell.s-ul.eu/BYLMrzat)
