@@ -1,11 +1,11 @@
-skins are ordered by when i generally used them
+some new skins aren't listed here bug me for them on discord mcronin
 
- if one of the links are dead dm me on discord Maxwell#9752 i try not to clear my s-ul files too often
- 
- some new skins aren't listed here bug me for them lmao
- 
+[aristia instafade](https://cdn.discordapp.com/attachments/1045890040666001509/1095195654327906334/AristiaEdit_DT_Instafade.osk)
+
+![screenshot2326](https://github.com/Mechaaaaa/osuskins/assets/114369231/d4b04358-ccdd-4789-931d-34221c9f400a)
+
+
 [maliszewski edit](https://maxwell.s-ul.eu/CE5Xv7fq)
-(original credit to [this guy](https://www.youtube.com/watch?v=xVlRTaowLIM))
 
 ![screenshot2107](https://user-images.githubusercontent.com/114369231/193535295-62e96ed5-d933-4a48-ba85-94c43cccdd9e.jpg)
 
